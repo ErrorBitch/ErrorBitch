@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ErrorBitch
+- 👋 Hi, I’m @Error._.sans
 - 👀 I’m interested in diverse
 - 🌱 I’m currently learning la nimic 
 - 💞️ I’m looking to collaborate on orice
